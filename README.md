@@ -1,4 +1,5 @@
 - 👋 Hi, I’m @Navya-sree-yellina
+- Mail me @ navya2817@gmail.com
 - 👀 I’m interested in web development, artificial intelligence, and troubleshooting production systems.
 - 🌱 I’m pursuing Master's degree in Computer Science  
 - 💞️ I’m looking to collaborate on Python, natural language processing, computer vision, and building scalable web applications.
