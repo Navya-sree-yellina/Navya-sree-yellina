@@ -40,7 +40,7 @@ $50K annual cost savings delivered
 📧  navyasreechoudhary@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/navya-sree-yellina/)  
 🌐 navyasreeyellina.com 
-📍 Saint Louis, MO  
+📍 Saint Louis, MO   
 
 ## 🌟 Fun AI Facts I Love
 💡 The first computer "bug" was literally a moth in 1947 (Grace Hopper was ahead of her time!)  
