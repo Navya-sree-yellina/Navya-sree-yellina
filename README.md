@@ -39,7 +39,7 @@ $50K annual cost savings delivered
 ## 🤝 Let's Connect & Collaborate!
 📧  navyasreechoudhary@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/navya-sree-yellina/)  
-🌐 [Website](navyasreeyellina.com)  
+🌐 navyasreeyellina.com 
 📍 Saint Louis, MO  
 
 ## 🌟 Fun AI Facts I Love
