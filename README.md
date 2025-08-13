@@ -37,8 +37,9 @@ $50K annual cost savings delivered
 📚 **Research Paper Author** (because sharing knowledge is caring)  
 
 ## 🤝 Let's Connect & Collaborate!
-📧 navya2817@gmail.com | navyasreechoudhary@gmail.com  
+📧  navyasreechoudhary@gmail.com  
 🔗 [LinkedIn](https://www.linkedin.com/in/navya-sree-yellina/)  
+🌐 navyasreeyellina.com
 📍 Saint Louis, MO  
 
 ## 🌟 Fun AI Facts I Love
